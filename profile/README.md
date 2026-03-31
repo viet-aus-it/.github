@@ -8,9 +8,9 @@ Find and follow our socials!
 
 - Facebook Page: [https://facebook.com/vietausit](https://facebook.com/vietausit "VAIT FB Page")
 - Facebook Group: [https://facebook.com/groups/vietausit](https://facebook.com/groups/vietausit "VAIT FB Group")
-- YouTube: [https://yt.vietausit.com](https://yt.vietausit.com "VAIT YT")
-- Discord: [https://chat.vietausit.com](https://chat.vietausit.com "VAIT Discord")
-- LinkedIn: [https://linkedin.vietausit.com](https://linkedin.vietausit.com "VAIT LinkedIn")
+- YouTube: [https://yt.vait.au](https://yt.vait.au "VAIT YT")
+- Discord: [https://chat.vait.au](https://chat.vait.au "VAIT Discord")
+- LinkedIn: [https://linkedin.vait.au](https://linkedin.vait.au "VAIT LinkedIn")
 
 ***
 
@@ -22,6 +22,6 @@ Theo dõi và tham gia hội chúng mình ở đây nhé!
 
 - Facebook Page: [https://facebook.com/vietausit](https://facebook.com/vietausit "VAIT FB Page")
 - Facebook Group: [https://facebook.com/groups/vietausit](https://facebook.com/groups/vietausit "VAIT FB Group")
-- YouTube: [https://yt.vietausit.com](https://yt.vietausit.com "VAIT YT")
-- Discord: [https://chat.vietausit.com](https://chat.vietausit.com "VAIT Discord")
-- LinkedIn: [https://linkedin.vietausit.com](https://linkedin.vietausit.com "VAIT LinkedIn")
+- YouTube: [https://yt.vait.au](https://yt.vait.au "VAIT YT")
+- Discord: [https://chat.vait.au](https://chat.vait.au "VAIT Discord")
+- LinkedIn: [https://linkedin.vait.au](https://linkedin.vait.au "VAIT LinkedIn")
